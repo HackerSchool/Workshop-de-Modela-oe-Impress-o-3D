@@ -1,1 +1,1 @@
-# Workshop-de-Modela-oe-Impress-o-3D
+# Workshop de Modelação e Impressão 3D
